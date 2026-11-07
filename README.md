@@ -50,4 +50,4 @@
 
 **EN** — Open to conversations about internships, Full-Stack projects and professional opportunities.
 
-[Email](mailto:dhaninedaoudi@gmail.com) · [GitHub](https://github.com/DHD-04)
+[LinkedIn](https://www.linkedin.com/in/doha-hanine-daoudi-001a90385/) · [Email](mailto:dhaninedaoudi@gmail.com) · [GitHub](https://github.com/DHD-04)
